@@ -4,7 +4,7 @@
 
 Hey vesgues!
 
-Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
+Mona here. I'm done preparing your exercise. Hope you enjoy or not! 💚
 
 Remember, it's self-paced so feel free to take a break! ☕️
 
